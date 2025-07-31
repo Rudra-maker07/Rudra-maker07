@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Rudra-maker07
 - 👀 I’m interested in cricket
 - 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on udemy
+- 💞️ I’m looking for job
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I'm very fun loving guy
